@@ -1,1 +1,2 @@
-# By pollito Dorado : Jose Pariona Ludeña
+# By  JORY.JY : YURI VASQUEZ OSCCO
+GRACIAS A POLLITO
